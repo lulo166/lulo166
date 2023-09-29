@@ -1,4 +1,4 @@
-- # An intro for lulo166
+- # An intro of lulo166
 - 👋 Hi, I’m @lulo166
 - 👀 I love video games
 - 🌱 I’m currently learning coding and maths
