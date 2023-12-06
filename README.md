@@ -7,7 +7,7 @@
 - 🐲 Dragons are cool, and are sacred. No bad mouthing and slander, like saying they are not cool.
 - 🎮 I want to do projects in Video Games, for now I'm working on my video game EPQ.
 - 🏳 I'm French, so NO white flag jokes, pls.
-- Here, a dragon to make you happy.
+- Here, a dragon to make me happy.
 - ![image](https://github.com/lulo166/lulo166/assets/146172440/0037d00d-7464-49c1-a049-042406e125bd)
 
 <!---
