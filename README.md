@@ -1,7 +1,7 @@
 - # An intro of lulo166
 - 👋 Hi, I’m @lulo166
 - 👀 I love video games
-- 🌱 I’m currently learning coding and maths
+- 🌱 I’m currently learning coding and maths.
 - 💞️ I’m looking to collaborate on video games when I'll be more experienced
 - 📫 How to reach me, well, you don't.
 - 🐲 Dragons are cool, and are sacred. No bad mouthing and slander, like saying they are not cool.
