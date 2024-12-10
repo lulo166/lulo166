@@ -3,7 +3,7 @@
 - 👀 I love video games and coding.
 - 🌱 I’m currently learning coding and maths.
 - 💞️ I’m looking to collaborate on video games, or cybersecurity when I'll be more experienced, we'll see, but it will be coding related.
-- 📫 How to reach me, well, you don't, at leat for now.
+- 📫 How to reach me, well, you don't, at least for now.
 - 🐲 Dragons are cool, and are sacred. No bad mouthing and slander, like saying they are not cool.
 - 🎮 I want to do projects in Video Games, I finished my video game EPQ.
 - 🏳 I'm French, so NO white flag jokes, pls.
