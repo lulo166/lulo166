@@ -5,8 +5,6 @@
 - 💞️ I’m looking to collaborate on video games, or cybersecurity when I'll be more experienced, we'll see, but it will be coding related.
 - 🐲 Dragons are cool.
 - 🎮 I want to do projects in Video Games, I finished my video game EPQ.
-- Here, a dragon to make me happy.
-- ![image](https://github.com/lulo166/lulo166/assets/146172440/0037d00d-7464-49c1-a049-042406e125bd)
 
 <!---
 lulo166/lulo166 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
